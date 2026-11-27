@@ -1,4 +1,4 @@
-# 📄 Hoja de Vida — Edwin Tumay Mojica
+# 📄 Hoja de Vida — Edwin Duvan Tumay Mojica
 
 🔗 **[Ver en vivo](https://edwintumay.github.io/Mi-HV/)**
 
